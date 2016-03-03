@@ -1,1 +1,2 @@
+cool
 hello world bitches!!
